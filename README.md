@@ -1,2 +1,0 @@
-# salva-images
-al bassam
